@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **naxrel@proton.me**
 
-- ⚡ Fun fact **racist**
+- ⚡ Fun fact **dunning kruger**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
